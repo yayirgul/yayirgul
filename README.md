@@ -1,4 +1,4 @@
-🔭 I’m Yunus Ayırgül<br>🌱 I’m currently learning<br>
+👋 Hi, I’m Yunus AYIRGÜL<br>🌱 I’m currently learning<br>
 
 
 ## 🌐 Socials:
