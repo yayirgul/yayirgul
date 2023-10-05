@@ -1,4 +1,3 @@
-# 💫 About Me:
 🔭 I’m Yunus Ayırgül<br>🌱 I’m currently learning<br>
 
 
